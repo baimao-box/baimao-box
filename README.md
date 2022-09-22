@@ -1,1 +1,1 @@
-https://camo.githubusercontent.com/d02a135c9b1b8f1163bceec9da1ec2fff77ea49176f8ef26c7381bd68d26a748/68747470733a2f2f636f756e742e6765746c6f6c692e636f6d2f6765742f404b6167616d6d61
+https://count.getloli.com/get/@:Ba1_Ma0
